@@ -1,13 +1,7 @@
 
 
-<h1>
-<g-emoji class="g-emoji" alias="star" fallback-src="https://github.githubassets.com/images/icons/emoji/unicode/2b50.png">⭐️</g-emoji>
-絲瓜导航最新地址發布</h1>
-<h2><a id="user-content-長按復制到瀏覽器裏面訪問網址️" class="anchor" aria-hidden="true" href="#️長按復制到瀏覽器裏面訪問網址️">
-<g-emoji class="g-emoji" alias="bangbang" fallback-src="https://github.githubassets.com/images/icons/emoji/unicode/203c.png">‼️</g-emoji>長按復制到瀏覽器裏面訪問網址
-<g-emoji class="g-emoji" alias="bangbang" fallback-src="https://github.githubassets.com/images/icons/emoji/unicode/203c.png">‼️</g-emoji></h2>
+<h1>絲瓜导航最新地址發布</h1>
   <h2>
-
 導航網址 ：<a href="https://tv123.app" rel="nofollow">https://tv123.app</a></h2>  
  <h2>
 導 航 永 久 域 名 	<a href="https://t.cn/AieQt9dx" rel="nofollow">https://t.cn/AieQt9dx</a></h2>
