@@ -4,7 +4,7 @@
   <h2>
 導航網址 ：<a href="https://tv123.app" rel="nofollow">https://tv123.app</a></h2>  
  <h3>
-導 航 永 久 域 名： 	<a href="https://t.cn/AieQt9dx" rel="nofollow">https://t.cn/AieQt9dx</a></h3>
+導 航 永 久 域 名： 	<a href="https://t.cn/AieTDntM" rel="nofollow">https://t.cn/AieTDntM</a></h3>
 <h3>
 <a id="user-content--郵箱聯系方式-tv123app-發送任意內容獲取最新地址" class="anchor" aria-hidden="true" href="#-郵箱聯系方式-tv123app-發送任意內容獲取最新地址">
 郵箱聯系方式: <a href="mailto:tv123app@gmail.com">tv123app@gmail.com</a> （發送任意內容獲取最新地址）</h3>
